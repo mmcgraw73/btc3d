@@ -1,2 +1,1 @@
-
-![burt_finger_sniff](https://user-images.githubusercontent.com/565960/195258335-e98f33f2-3663-4c56-9d98-652c3ade67e6.png)
+![burt_finger_sniff](https://user-images.githubusercontent.com/565960/195258636-5e67338c-2057-4c5b-9775-9936f213c8ea.png)
